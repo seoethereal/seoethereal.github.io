@@ -1,2 +1,0 @@
-# seoethereal.github.io
-Website
